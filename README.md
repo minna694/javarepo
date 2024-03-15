@@ -1,5 +1,5 @@
 # javarepo
-sZNSdc8nqvnhRZ0uueUSnnJBI
+mbSYFbTZ6PVFTlllcwGeYuckz
 355
 disi23sjavarqqrgh4tgepos
 etjeeqfgwwrh
